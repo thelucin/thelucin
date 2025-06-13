@@ -1,3 +1,3 @@
-📢 ru, en  
+📢 ru, en
 🌈 femboy & gay, prefer she/her, into programming  
-🛠️ main account => https://github.com/Kowkodivka
+🛠️ hobby projects account => https://github.com/Kowkodivka
